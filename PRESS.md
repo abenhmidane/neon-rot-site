@@ -21,7 +21,7 @@ Out now on iPhone: https://apps.apple.com/us/app/neon-rot/id6833462784
 | Connection | Plays offline. Only buying or restoring the unlock needs a connection |
 | Age rating | 13+ |
 | Language | English |
-| Contact | bhmiden.anouar@gmail.com |
+| Contact | contact@amayara.com |
 
 ## The game
 
